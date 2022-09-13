@@ -1,0 +1,1 @@
+![image-hint](/images/goatfootball.jpeg)
